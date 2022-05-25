@@ -13,7 +13,7 @@ ABOUT BOT
  
 
 ### BOTS ARE MAINTAINED BY
-      
-    [I ❤ MOVIES]    
+     
+[KUNAL DIWAN](https://t.me/Kunaldiwan)   
 
 
